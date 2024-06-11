@@ -7,6 +7,7 @@ Meu nome é Lucca
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📪:
+![](https://media.tenor.com/RlMDPYllJnIAAAAi/ruffles-cat.gif)
 
  estudosdovissicaro@gmail.com
 
