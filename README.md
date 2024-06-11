@@ -8,7 +8,7 @@ Meu nome é Lucca
 
 ### Você pode entrar em contato comigo 📪:
 ![](https://media.tenor.com/RlMDPYllJnIAAAAi/ruffles-cat.gif)
-![](https://tenor.com/pt-BR/view/dancing-happy-dance-amazing-world-of-gumball-gif-1313796402144689495)
+![](https://media1.tenor.com/m/EjuK3fEFPVcAAAAC/dancing-happy-dance.gif)
  
  estudosdovissicaro@gmail.com
 
