@@ -7,7 +7,7 @@ Meu nome é Lucca
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📪:
-![](https://media1.tenor.com/m/oaE4blyy_jAAAAAC/monkey-pissed.gif)
+![](https://media1.tenor.com/m/BDZzzQ6rFO0AAAAC/godfather-bellissima.gif)
 
  
  estudosdovissicaro@gmail.com
